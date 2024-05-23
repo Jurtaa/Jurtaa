@@ -1,7 +1,6 @@
 ## i code for fun
 - i am aroace agender
 - i use he/they pronouns
-- i code for fun
 - i am very cute
 - hi
 
