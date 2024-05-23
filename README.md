@@ -1,4 +1,11 @@
-## Hi there 👋
+## i code for fun
+- i am aroace agender
+- i use he/they pronouns
+- i code for fun
+- i am very cute
+- hi
+
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Jurtaa&theme=dark)](https://github.com/anuraghazra/github-readme-stats)
 
 <!--
 **Jurtaa/Jurtaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
