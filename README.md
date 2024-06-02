@@ -1,4 +1,4 @@
-## among a zillion other things, i am also an ameteur-ish coder who codes for fun
+## among a zillion other things, i am also an amateur-ish coder who codes for fun
 - i am aroace agender
 - i use he/they pronouns
 - i am very cute
